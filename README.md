@@ -1,0 +1,1 @@
+# JP_Kolokwium_1P_czwartek_Jan_Izdebski
